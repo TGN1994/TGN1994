@@ -1,7 +1,7 @@
 ### Hi there 👋
 
 
-My name is Tobias Glerup Nielsen. I'm starting my AP degree in omputer Science August 2023 at EAMV 📚.
+My name is Tobias Glerup Nielsen. I'm starting my AP degree in omputer Science August 2023 at EAMV 📚
 
 - Creative geek with a big passion for aesthetic coding 🔥
 - Big coffee enthusiast - allways down for a chat and a cup ☕
